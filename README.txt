@@ -1,0 +1,1 @@
+Please visit the itch.io page for more details: https://leumbono.itch.io/snowball-simulator-2022
